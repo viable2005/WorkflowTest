@@ -8,6 +8,6 @@
 
 "Do not go gentle into that goodnight" - Dylan Thomas
 
-"I think ya sent her a little bit too hard there bud" - A Drunk Candian Guy
+"I think ya sent her a little-bit too hard there bud" - A Drunk Canadian Guy
 
 "Anti-social behavior is a trait of intelligence in a world full of conformists." Nikola Tesla

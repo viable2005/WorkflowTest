@@ -17,3 +17,7 @@
 "Be the change you want in the world" - Anonymous
 
 "Mathematics is the queen of sciences, and arithmetic is the queen of mathematics." - Carl Friedrich Gauss
+
+"Hopefully this will demonstrate a conflict." - Trevor
+
+"This is super cool if it actually works." - Neil De Grasse Tyson

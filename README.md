@@ -18,4 +18,6 @@
 
 "Be the destruction you want in the world" - Anonymous
 
-"Mathematics is the queen of art, and arithmetic is the queen of mathematics." - Carl Friedrich Gauss
+"The more you sweat in practice, the more you bleed in battle" -Anonymous
+
+"Mathematics is the queen of sciences, and arithmetic is the queen of mathematics." - Carl Friedrich Gauss

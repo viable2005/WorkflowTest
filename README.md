@@ -10,6 +10,8 @@
 
 "I think ya sent her a little-bit too hard there bud" - A Drunk Canadian Guy
 
+"If life were predictable it would cease to be life and be without flavor." -Eleanor Roosevelt
+
 "Do not go gentle into that good night." Dylan Thomas
 
 "Anti-social behavior is a trait of intelligence in a world full of conformists." Nikola Tesla

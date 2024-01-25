@@ -16,4 +16,6 @@
 
 "Be the change you want in the world" - Anonymous
 
+"The more you sweat in practice, the more you bleed in battle" -Anonymous
+
 "Mathematics is the queen of sciences, and arithmetic is the queen of mathematics." - Carl Friedrich Gauss
